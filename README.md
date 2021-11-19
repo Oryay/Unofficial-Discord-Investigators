@@ -3,6 +3,8 @@ Discord server idea.
 
 The Discord Investigators.
 
+TAA: The Templar Administrator Association.
+
 "We will not stop until we have fallen."
 
 The Discord Investigators will do a multitude of things, ranging from providing a user with protection services, to tracking someone down.
